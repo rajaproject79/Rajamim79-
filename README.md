@@ -2,7 +2,7 @@
   <img src="https://i.imgur.com/mhZbqG3.jpeg" width="50" style="margin-right: 10px;"></a>
 </p>
 <h5 align="center">
-🔹RS RAJA CHOWDHURY
+🔹 RAJA ViP 7X 
 
 
 - [📝 **Note**](#-note)
@@ -27,7 +27,7 @@ BOT-OWNER-CONTEG"
 FACEBOKhttps://www.facebook.com/RAJA.ADIBA09638357510"
 
 MESSENGER
-m.me/RAJA.ADIBA09638357510"
+m.me/ajavip7x"
 
 WHATSAPP
 wa.me/+8801715559179"
@@ -35,12 +35,12 @@ wa.me/+8801715559179"
 <img align="center" src="https://i.imgur.com/EkmNZ6I.jpeg"/>
 
 
-🔹 RAJA CHOWDHURY 
+🔹 RAJA CHOWDHURY RAJA ViP 7X 
 
 
-# Editing BY RAJA CHOWDHURY
+# Editing BY RAJA CHOWDHURY RAJA ViP 7X 
 
-# RAJA-BOT-PACK-SUPPER-ROBOT REAL OWNER RS RAJA CHOWDHURY
+# RAJA-BOT-PACK-SUPPER-ROBOT REAL OWNER RS RAJA CHOWDHURY RAJA ViP 7X 
 
 # Everyone run this RAJA-BOT-007 for fun
 
