@@ -1,4 +1,4 @@
-<p align="center"><a href="https://www.facebook.com/RajaFarjan01882913768" target="_blank" rel="noopener noreferrer">
+<p align="center"><a href="https://m.me/RAJA.ViP.7X" target="_blank" rel="noopener noreferrer">
   <img src="https://i.imgur.com/mhZbqG3.jpeg" width="50" style="margin-right: 10px;"></a>
 </p>
 <h5 align="center">
@@ -22,12 +22,11 @@
 - 
 BOT-OWNER-CONTEG"
 
- FACEBOKhttps://www.facebook.com/RAJA.ADIBA09638357510"
+ https://m.me/RAJA.ViP.7X"
 
-FACEBOKhttps://www.facebook.com/RAJA.ADIBA09638357510"
+https://m.me/RAJA.ViP.7X"
 
-MESSENGER
-m.me/ajavip7x"
+MESSENGER: https://m.me/RAJA.ViP.7X
 
 WHATSAPP
 wa.me/+8801715559179"
@@ -46,7 +45,7 @@ wa.me/+8801715559179"
 
 # If there is any error, I will fix it by knocking on Facebook
 
-# https://www.facebook.com/RAJA.ADIBA09638357510
+# https://m.me/RAJA.ViP.7X
 
 # I hope you enjoy
 
