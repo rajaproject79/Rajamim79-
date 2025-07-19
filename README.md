@@ -33,6 +33,22 @@ wa.me/+8801715559179"
 
 <img align="center" src="https://i.imgur.com/EkmNZ6I.jpeg"/>
 
+🔹 RAJA CHOWDHURY RAJA ViP 7X 
+
+
+# Editing BY RAJA CHOWDHURY RAJA ViP 7X 
+
+# RAJA-BOT-PACK-SUPPER-ROBOT REAL OWNER RS RAJA CHOWDHURY RAJA ViP 7X 
+
+# Everyone run this RAJA-BOT-007 for fun
+
+# If there is any error, I will fix it by knocking on Facebook
+
+# https://m.me/RAJA.ViP.7X
+
+# I hope you enjoy
+
+# THANK YOU
 name: Node.js CI
 
 on:
@@ -70,23 +86,5 @@ jobs:
         PORT: 8080
       run: npm start
 
-
-
-🔹 RAJA CHOWDHURY RAJA ViP 7X 
-
-
-# Editing BY RAJA CHOWDHURY RAJA ViP 7X 
-
-# RAJA-BOT-PACK-SUPPER-ROBOT REAL OWNER RS RAJA CHOWDHURY RAJA ViP 7X 
-
-# Everyone run this RAJA-BOT-007 for fun
-
-# If there is any error, I will fix it by knocking on Facebook
-
-# https://m.me/RAJA.ViP.7X
-
-# I hope you enjoy
-
-# THANK YOU
 
 # ❤️💛🤍💚💙💜❣️💟💘💌
